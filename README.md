@@ -1,0 +1,1 @@
+## **No es recomendable el intento de Raid / Sacar Informacion con el *Bot* ni nada porque esta todo Fixeado si quieres Raidear/Sacar Informacion vete ala mierda :heart: | Lindo dia.**
